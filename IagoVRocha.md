@@ -1,4 +1,2 @@
 digitequalquerualquercoisaquevcquiser
 123
-.
-loren
